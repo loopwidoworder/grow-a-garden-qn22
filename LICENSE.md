@@ -1,4 +1,4 @@
-#  
+#  Experience ultimate mining tycoon like never before with top ultimate mining tycoon Scripts, the #1 Script. Includes one-hit kill and god mode for
 
 
 
